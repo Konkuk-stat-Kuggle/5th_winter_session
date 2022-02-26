@@ -2,7 +2,17 @@
 
 ### Konkuk Univ. Applied-Statistics KUGGLE
 
-#### 5th president : @machel1000@naver.com
-#### 5th vice president : @hw.telos@gmail.com
+#### Contact Us!
 
-##### Winter Session 1228 ~ 0222 (8 times)
+##### instagram
+-> @__kuggle__
+
+##### mail
+-> ticccctocccc@gmail.com
+-> hw.telos@gmail.com
+
+##### 
+This Repo is for 
+Winter Session 1228 ~ 0222 (8 times)
+
+
