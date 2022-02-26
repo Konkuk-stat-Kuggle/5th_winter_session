@@ -5,10 +5,10 @@
 #### Contact Us!
 
 ##### instagram
--> @__kuggle__
+-> @ __kuggle__
 
 ##### mail
--> ticccctocccc@gmail.com
+-> ticccctocccc@gmail.com\n
 -> hw.telos@gmail.com
 
 ##### 
