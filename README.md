@@ -4,12 +4,12 @@
 
 #### Contact Us!
 
-##### instagram
--> @ __kuggle__
+#### instagram
+#####-> @ __kuggle__
 
-##### mail
--> ticccctocccc@gmail.com\n
--> hw.telos@gmail.com
+#### mail
+##### -> ticccctocccc@gmail.com\n
+##### -> hw.telos@gmail.com
 
 ##### 
 This Repo is for 
