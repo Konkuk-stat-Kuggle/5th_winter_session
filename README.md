@@ -4,11 +4,8 @@
 
 #### Contact Us!
 
-#### instagram
-##### -> @ __kuggle__
-
 #### mail
-##### -> ticccctocccc@gmail.com\n
+##### -> ticccctocccc@gmail.com
 ##### -> hw.telos@gmail.com
 
 ##### 
