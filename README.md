@@ -5,7 +5,7 @@
 #### Contact Us!
 
 #### instagram
-#####-> @ __kuggle__
+##### -> @ __kuggle__
 
 #### mail
 ##### -> ticccctocccc@gmail.com\n
